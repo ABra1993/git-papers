@@ -1,4 +1,4 @@
-Blood is Delicious
-By: Vlad Dracula
+Human Blood is Delicious
+By: Vlad Dracula, WJohn
 
 Introduction: Vampires like blood [1. Dracula, 2. Belmont]
